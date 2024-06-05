@@ -1,9 +1,10 @@
-**Salve Família**
-      🧠
-Meu nome é little pop corn  ✨ _a lindinha_ ✨ 
-
-Here are some ideas to get you started:
-
+        **Salve Família**
+              🧠😗
+Meu nome é little pepper  ✨ _a lindinha_ ✨ 
+               🦾
+*(AQUI ESTÂO ALGUNS DOS MEUS PROJETOS)*
+               ⚓
+               🙉 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
